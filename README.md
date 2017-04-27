@@ -121,4 +121,5 @@ This is a raised system that have long runs of shelving that provides cost effec
 Here is an ideal solution for creating an open floor space above a racking system. This mezzanine floor can be used for bulk storage or additional shelving. Such a floor is a lid sitting on top of the racking system and is accessed by a staircase. These type of racking solutions are a cost effective way of providing additional floors space when shelving at the ground level. It removes the need for installing a mezzanine floor. However, you may require building regulations approval to put this in place.
 At the end of the day, it’s the size of your space and your storage needs that will determine the type of mezzanine flooring you choose.
 
+## References
 Information from [Wong Lye Racking](https://racking.com.sg)
