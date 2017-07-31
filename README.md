@@ -126,4 +126,4 @@ Information from [Wong Lye Racking](https://racking.com.sg)<br>
 
 ## Sponsors
 Singapore Maid Agency: [https://expressmaids.com.sg](https://expressmaids.com.sg)
-Singapore Mersen Supplier[https://www.electrimec.com.sg/products/mersen-fuses-fusegear](https://www.electrimec.com.sg/products/mersen-fuses-fusegear)
+Singapore Mersen Supplier: [https://www.electrimec.com.sg/products/mersen-fuses-fusegear](https://www.electrimec.com.sg/products/mersen-fuses-fusegear)
