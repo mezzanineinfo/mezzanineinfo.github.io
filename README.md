@@ -123,5 +123,7 @@ At the end of the day, it’s the size of your space and your storage needs that
 
 ## References
 Information from [Wong Lye Racking](https://racking.com.sg)<br>
-[Looking for a maid agency?](https://expressmaids.com.sg)
 
+## Sponsors
+Singapore Maid Agency: [https://expressmaids.com.sg](https://expressmaids.com.sg)
+Singapore Mersen Supplier[https://www.electrimec.com.sg/products/mersen-fuses-fusegear](https://www.electrimec.com.sg/products/mersen-fuses-fusegear)
