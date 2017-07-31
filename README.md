@@ -122,6 +122,6 @@ Here is an ideal solution for creating an open floor space above a racking syste
 At the end of the day, it’s the size of your space and your storage needs that will determine the type of mezzanine flooring you choose.
 
 ## References
-Information from [Wong Lye Racking](https://racking.com.sg)
+Information from [Wong Lye Racking](https://racking.com.sg)<br>
 [Looking for a maid agency?](https://expressmaids.com.sg)
 
